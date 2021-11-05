@@ -1,5 +1,5 @@
 
-![Front End Web Developer and WordPress Expert.](https://media-exp1.licdn.com/dms/image/C5616AQFWjB5PACFY5Q/profile-displaybackgroundimage-shrink_200_800/0/1624455075600?e=1635379200&v=beta&t=L7HkLAm3ESqRUgyvekqLpW_1GG2K9qUwNsLCfxbh8Qk)
+![Front End Web Developer and WordPress Expert.
 ### 👋, Hi, I am Zobayerul Islam
 #### Front End Web Developer and WordPress Expert.
 
